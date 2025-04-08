@@ -1,4 +1,4 @@
-Frontend Developer <-- Mom <-- Teacher <-- Admin Assistant <-- Youth Worker
+Full time mom --> Frontend Developer
 
 Designing and coding during naptimes and weekends. 
 Joining the workforce Fall 2026. 
